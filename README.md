@@ -26,7 +26,7 @@ https://www.goodmassage.kr/incheon
 
 - 24시간 운영  
 - 빠른 방문  
-- 프라이빗 케어  
+- 프라이빗 & 프리미엄 케어
 
 ---
 
